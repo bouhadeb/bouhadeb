@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bouhadeb
 - 👀 I’m interested in silence
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on ur mum
+- 💞️ I’m looking to collaborate my self
 - 📫 How to reach me dont
 
 <!---
